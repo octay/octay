@@ -1,0 +1,6 @@
+- 👋 Hi, I’m 五月云(@octay), a ordinary college student.
+- 👀 I’m interested in electronic music, bedroom fantasy, and anime ... whatever but computer science.
+- 🌱 I’m currently learning c c++ java python, just college assignments.
+- 💞️ I’m looking to collaborate on humanization of software, simple game.
+- 📫 How to reach me : 2990891143@qq.com
+- 🌸 What future awaits me?
