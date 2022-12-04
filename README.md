@@ -7,7 +7,7 @@
 
 #### link
 
-[bili](https://space.bilibili.com/18794996?spm_id_from=333.1007.0.0 "哔哩哔哩动画主页")
+[bili](https://space.bilibili.com/ "哔哩哔哩动画主页")
 
 [lofter](https://wyytb2141.lofter.com/ "不太用了但还是会发东西就是说")
 
